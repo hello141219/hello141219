@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @hello141219
+- 👀 I’m interested in computer,OI,Web and C++
+- 🌱 I’m currently learning C++
+- 📫 How to reach me? email: hello141219@hotmail.com
+- 😄 Pronouns: H
+- ⚡ Fun fact: I am a primary school student
